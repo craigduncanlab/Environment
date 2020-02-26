@@ -1,5 +1,6 @@
 # The Pause That Refreshes
 Updated (c) Craig Duncan 2018-2020
+
 I can't watch this uncritically any more
 
 [SugarDrinkVideo](https://www.youtube.com/watch?v=bcatrD251VA)
